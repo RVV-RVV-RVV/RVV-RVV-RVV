@@ -22,5 +22,5 @@
 * 📈 Цікавлюся темою особистих фінансів та інвестицій.
 
 ### 📫 Як зі мною зв'язатися:
-* [LinkedIn](https://www.linkedin.com/in/viktor-rozhenko-39426b380/)
+* [LinkedIn](www.linkedin.com/in/rvv-rvv/)
 * [Telegram](https://t.me/RVV_RVV)
